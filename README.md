@@ -1,4 +1,4 @@
-## 👋 Hi there! I'm Ashley.
+## 👋🏼 Hi! I'm Ashley! 👋🏼
 
 <!--
 **arogrs/arogrs** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
