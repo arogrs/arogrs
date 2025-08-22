@@ -2,7 +2,7 @@
 
 🧠 About Me 
 
-I’m a senior at **Southern Illinois University Edwardsville (SIUE)** majoring in **Mass Communications** with a focus in **Journalism**, and I’m also pursuing a **Creative Writing minor**. When I’m not in class, you’ll usually find me managing a **T-Mobile store in St. Charles, Missouri** where I spend most of my time helping customers remember the passwords they set up. I have a strong passion for **music journalism**, combining my love for writing with my interest in the music industry.  
+I’m a senior at **Southern Illinois University Edwardsville (SIUE)** majoring in **Mass Communications** with a focus in **Journalism**, and I’m also pursuing a **Creative Writing minor**. When I’m not in class, you’ll find me managing a **T-Mobile store in St. Charles, Missouri** where I spend most of my time helping customers remember the passwords they set up. I have a strong passion for **music journalism**, combining my love for writing with my interest in the music industry.  
 
 ## 📚 Topics I’d Be Interested in Researching
 - 📱 How social media shapes the experiences of teens & adolescents in school  
