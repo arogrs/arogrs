@@ -9,7 +9,7 @@ I’m a senior at **Southern Illinois University Edwardsville (SIUE)** majoring 
 - 🎓 First-generation college student experiences & challenges 
 - 🎶 The role of music in shaping identity during college years  
 - 💻 The rise of digital media & how college students consume news today  
-- ☕ The culture of “college hustle” — balancing school, work, and social life  
+- ☕ The culture of “college hustle” with balancing school, work, and social life  
 
 
 <!--
